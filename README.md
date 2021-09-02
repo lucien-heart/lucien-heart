@@ -1,4 +1,5 @@
-- 👋 @lucien-heart here... (You can call me "git-newbie"! 👀)
+- Hello@ 👋 
+- @lucien-heart here.
 - Let's chat. :)
 
 <!---
