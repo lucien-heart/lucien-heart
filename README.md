@@ -1,4 +1,4 @@
-- Hello@ 👋 
+- Hello! 👋 
 - @lucien-heart here.
 - Let's chat. :)
 
