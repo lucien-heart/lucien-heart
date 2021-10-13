@@ -2,7 +2,7 @@ Hello! 👋
 
 @lucien-heart here. 
 
-I've recently joind @github on the Customer Success team. 🙌🏼 🔥 
+I've recently joind GitHub on the Customer Success team. 🙌🏼 🔥 
 
 Let's chat. :)
 
